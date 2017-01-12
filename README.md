@@ -1,2 +1,0 @@
-# xpsero-material
-jajaja
